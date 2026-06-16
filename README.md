@@ -4,4 +4,8 @@ Hi this is still a wip
 
 <img width="736" height="679" alt="8b293368-2791-427e-8f34-6dd8e07a67c2" src="https://github.com/user-attachments/assets/4595334e-8d40-4db8-a1a3-e464c166cd55" />
 
- [rentry](https://rentry.co/thesilverarrows) ☆ [ata](https://hamberg.atabook.org/) ☆ [guns.lol](https://guns.lol/equalmachinery) </div>
+ [rentry](https://rentry.co/thesilverarrows) ☆ [ata](https://hamberg.atabook.org/) ☆ [guns.lol](https://guns.lol/equalmachinery) 
+
+![](https://komarev.com/ghpvc/?username=cybermiyano&label=݁Ი𐑼⋆%20Paws)
+
+</div>
