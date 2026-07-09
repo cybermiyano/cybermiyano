@@ -8,6 +8,4 @@
 
 ![](https://komarev.com/ghpvc/?username=cybermiyano&label=݁Ი𐑼⋆%20Paws)
 
-(hi im semi-inactive since im taking a break.. ill be back soon ^_^)
-
 </div>
