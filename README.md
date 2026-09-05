@@ -9,6 +9,6 @@
 
  [rentry](https://rentry.co/thesilverarrows) 𓏵 [ata](https://hamberg.atabook.org/) 𓏵 [guns.lol](https://guns.lol/equalmachinery) 𓏵 [straw](https://cyberrosberg.straw.page/)
 
-_Semi inactive since im very busy irl..._
-</div>
 <img width="736" height="433" alt="Tak berjudul866_20260905125647" src="https://github.com/user-attachments/assets/cc8dd19f-90b6-4f52-a896-2902cba914c4" />
+
+</div>
